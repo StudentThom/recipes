@@ -21,12 +21,19 @@ Labels: 🤖 AI-inspired, 🇫🇷 Frech, 🍲 Main
 
 ## Instructions
 Heat olive oil in a large pot over medium heat. Add diced onion, carrots, and celery. Cook, stirring occasionally, until vegetables are softened, about 5-7 minutes.
+
 Add minced garlic to the pot and cook for another 1-2 minutes until fragrant.
+
 Stir in the lentils, vegetable broth, red wine, tomato paste, dried thyme, dried rosemary, salt, pepper, and bay leaf. Bring the mixture to a simmer.
+
 Reduce the heat to low, cover the pot, and let the lentils simmer for about 30-35 minutes, or until they are tender and most of the liquid has been absorbed.
+
 While the lentils are cooking, heat a separate skillet over medium heat. Add the sliced mushrooms and cook until they release their moisture and become golden brown, about 8-10 minutes.
+
 Once the lentils are tender, remove the bay leaf from the pot and stir in the cooked mushrooms.
+
 Taste and adjust seasoning if needed. If the mixture seems too thick, you can add a splash of vegetable broth or water to reach your desired consistency.
+
 Serve the Lentil Bourguignon hot, garnished with chopped fresh parsley. It pairs well with mashed potatoes, crusty bread, or over cooked pasta.
 
 ## Comments
