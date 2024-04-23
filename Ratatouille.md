@@ -33,6 +33,7 @@ Slice the tomatoes into thin rounds.
 
 🍅 In a large baking dish, layer the sliced tomatoes on the bottom.
 Spoon the cooked vegetables on top of the sliced tomatoes, arranging them evenly.
+
 ♨️ Cover the baking dish with aluminum foil and bake in the preheated oven for 25-30 minutes, or until the vegetables are fully cooked and tender.
 
 ♨️ Remove the foil and bake for an additional 10 minutes to allow some of the liquid to evaporate.
